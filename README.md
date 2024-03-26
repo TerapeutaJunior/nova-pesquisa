@@ -1,1 +1,1 @@
-[link]([https://form.juniorterapeutadevalor.com.br/](https://pesquisa.juniorterapeutadevalor.com.br/)https://pesquisa.juniorterapeutadevalor.com.br/)
+[link](https://pesquisa.juniorterapeutadevalor.com.br/)
